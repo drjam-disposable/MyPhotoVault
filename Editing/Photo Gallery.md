@@ -13,3 +13,6 @@ A wide frame puts the trees and their reflections side by side. See [[Pond Refle
 ![[Attachments/garden-details.png|600]]
 
 A close crop draws attention to the rose and its drops of dew. See [[Garden Details]].
+
+
+changes here!!!
